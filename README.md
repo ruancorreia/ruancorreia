@@ -1,8 +1,8 @@
 
 ### Sup guys, i'm Ruan Correia
 
-👨🏾‍💻 - <b>Análises de Sistemas <br>
-💻 - <b>FullStack Developer - Digital House  <br>
+👨🏾‍💻 - <b>Sistemas de Informação <br>
+💻 - <b>Desenvolvedor - em formação... <br>
 
 
   ##
